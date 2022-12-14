@@ -1,1 +1,1 @@
-# edutionn
+# Eduction
